@@ -60,6 +60,14 @@ DSJ3.0：https://wklb258.lanzouy.com/iPcf1009ckqd
 
 DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
 
+车机：
+----
+嘟嘟桌面：https://wklb258.lanzouy.com/iBxbh009dwdi
+
+酷狗：https://wklb258.lanzouy.com/i9nXi009dx6h
+
+喜马拉雅：https://wklb258.lanzouy.com/i9v5Q009dxij
+
 
 常用：
 ---------
