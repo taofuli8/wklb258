@@ -73,6 +73,8 @@ DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
 ---------
 电子书：https://shuxiangjia.cn/
 
+calibre：链接：https://pan.baidu.com/s/1ojccNyq0p06vFXPlhiSocA 提取码：wklb 
+
 网络剪切板：https://netcut.cn/
 
 山药代码：https://www.yamcode.com/
