@@ -84,6 +84,8 @@ DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
 
 短网址：https://ci.ci/
 
+短网址：https://cutt.ly/
+
 短网址：https://www.c1n.cn/
 
 短网址：https://ak9.cc/U/Index
