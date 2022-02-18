@@ -77,6 +77,13 @@ DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
 
 书源外链：https://shuyuan.miaogongzi.net/index.php
 
+
+短网址：http://gg.gg/
+
+短网址：https://ci.ci/
+
+短网址：https://www.c1n.cn/
+
 短网址：https://ak9.cc/U/Index
 
 图片外链：https://ibb.co/71jxCqv
