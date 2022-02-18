@@ -41,3 +41,17 @@ SoniceTV：https://wklb258.lanzouy.com/i28MR009cgqj
 直播工具：
 -------
 DIY三线路直播TV：https://wklb258.lanzouy.com/ir7Jb0095yih
+
+TV盒子其他：
+-------------
+梨园行：https://wklb258.lanzouy.com/ibsC7009cnfa
+
+家庭KTV：https://wklb258.lanzouy.com/ifq8f009cm6f
+
+哔哩哔哩弹幕版：https://wklb258.lanzouy.com/iBHF5009cjja
+
+讯飞语音xiri：https://wklb258.lanzouy.com/iskVB009cgzi
+
+DSJ3.0：https://wklb258.lanzouy.com/iPcf1009ckqd
+
+DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
