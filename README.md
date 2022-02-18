@@ -26,6 +26,10 @@ ATV桌面：https://wklb258.lanzouy.com/iExuQ009biba
 
 当贝桌面：https://wklb258.lanzouy.com/ieXKe009bkhi
 
+win98桌面：https://wklb258.lanzouy.com/i4cKf009dura
+
+win10桌面：https://wklb258.lanzouy.com/iaysG009dvnc
+
 --------------------------------------------------------
 安卓投屏：
 ------
