@@ -55,3 +55,16 @@ TV盒子其他：
 DSJ3.0：https://wklb258.lanzouy.com/iPcf1009ckqd
 
 DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
+
+
+常用：
+---------
+电子书：https://shuxiangjia.cn/
+
+网络剪切板：https://netcut.cn/
+
+短网址：https://ak9.cc/U/Index
+
+图片外链：https://ibb.co/71jxCqv
+
+代码仓库：https://codeberg.org/
