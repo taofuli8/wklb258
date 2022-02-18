@@ -83,6 +83,8 @@ calibre：链接：https://pan.baidu.com/s/1ojccNyq0p06vFXPlhiSocA 提取码：w
 
 json云：http://jsonyun.xyz/
 
+小太阳：https://cncncloud.com/
+
 短网址：http://gg.gg/
 
 短网址：https://ci.ci/
