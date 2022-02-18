@@ -33,6 +33,10 @@ ATV桌面：https://wklb258.lanzouy.com/iExuQ009biba
 
 多屏互动：https://wklb258.lanzouy.com/iTmsv009bljg
 
+SoniceTV：https://wklb258.lanzouy.com/i28MR009cgqj
+
+波澜投屏：https://wklb258.lanzouy.com/idBAb009chba
+
 --------------------------------------------------------
 直播工具：
 -------
