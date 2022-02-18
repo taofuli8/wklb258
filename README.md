@@ -63,6 +63,8 @@ DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
 
 网络剪切板：https://netcut.cn/
 
+书源外链：https://shuyuan.miaogongzi.net/index.php
+
 短网址：https://ak9.cc/U/Index
 
 图片外链：https://ibb.co/71jxCqv
