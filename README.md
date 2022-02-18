@@ -75,6 +75,8 @@ DSJ1.12：https://wklb258.lanzouy.com/iISzz009ckyb
 
 网络剪切板：https://netcut.cn/
 
+山药代码：https://www.yamcode.com/
+
 书源外链：https://shuyuan.miaogongzi.net/index.php
 
 
