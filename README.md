@@ -1,9 +1,13 @@
 安卓手机端：
 -------
 易pro：https://wklb258.lanzouy.com/iUnY7zuhb3g
+
 秒开：https://wklb258.lanzouy.com/it91O00nfnxa
+
 猫爪：https://wklb258.lanzouy.com/ihHLK00lsaaf
+
 大海：https://wklb258.lanzouy.com/iukFJ00jrc5e
+
 
 --------------------------------------------------------
 
@@ -47,7 +51,7 @@ SoniceTV：https://wklb258.lanzouy.com/i28MR009cgqj
 --------------------------------------------------------
 直播工具：
 -------
-DIY三线路直播TV：https://wklb258.lanzouy.com/ir7Jb0095yih
+DIY三线路直播TV：https://wklb258.lanzouy.com/ipJaI00bbnri
 
 TV盒子其他：
 -------------
