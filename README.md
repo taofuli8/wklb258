@@ -1,6 +1,9 @@
 安卓手机端：
 -------
-手机观影：https://wklb258.lanzouy.com/iUnY7zuhb3g
+易pro：https://wklb258.lanzouy.com/iUnY7zuhb3g
+秒开：https://wklb258.lanzouy.com/it91O00nfnxa
+猫爪：https://wklb258.lanzouy.com/ihHLK00lsaaf
+大海：https://wklb258.lanzouy.com/iukFJ00jrc5e
 
 --------------------------------------------------------
 
@@ -8,9 +11,9 @@
 -------
 猫TV内置：https://wklb258.lanzouy.com/iaBdT008ztwf
 
+今日：https://wklb258.lanzouy.com/idDuX00jpgkb
 
-
-猫TV最新壳：https://wklb258.lanzouy.com/iKuXt0098z5i
+猫TV2.0.9最新壳：https://wklb258.lanzouy.com/ihEDj00rbluf
 
 
 猫TV最新接口：
@@ -22,7 +25,7 @@
 --------------------------------------------------------
 安卓桌面：
 -------
-ATV桌面：https://wklb258.lanzouy.com/iExuQ009biba
+ATV桌面：https://wklb258.lanzouy.com/iGOZe00qs8oh
 
 当贝桌面：https://wklb258.lanzouy.com/ieXKe009bkhi
 
